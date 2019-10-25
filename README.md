@@ -1,0 +1,2 @@
+# AutomatedImagestartupcopy
+ 
